@@ -7,7 +7,7 @@
 
 #### I am very passionate about my job and with my great determination and results-oriented approach; I believe I can contribute to the organisation.
 
-#### **You can see my digital details in below links:**
+#### **You can see my digital details in below:**
 #### **[PG Diploma in Data Science Degree Certificate](https://api.accredible.com/v1/auth/invite?code=e22bbad1a72fb7905f26&credential_id=a8367d5b-35be-4f2a-9bfe-2e48e906018b&url=https%3A%2F%2Fwww.credential.net%2Fa8367d5b-35be-4f2a-9bfe-2e48e906018b&ident=e486b4fa3b7c9f51daaa8b9b9b8af15e2615e1ff)**
 #### **[LinkedIn](https://www.linkedin.com/in/tony-j/)**
 #### **[HackerRank](https://www.hackerrank.com/josetony78)**
