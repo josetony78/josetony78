@@ -1,4 +1,4 @@
-#### **Hi there I am Tony Jose
+#### Hi there I am Tony Jose
 
 #### I have been working as a Business Analyst since 2016 and understand the key concepts and principles of this job and what it takes to successfully execute all assigned duties.
 
