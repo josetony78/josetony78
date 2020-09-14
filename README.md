@@ -12,6 +12,6 @@
 #### **[LinkedIn](https://www.linkedin.com/in/tony-j/)**
 #### **[HackerRank](https://www.hackerrank.com/josetony78)**
 
-### You can contact me on **Phone no.: +91-8866-597132** and **Email ID: josetony78@gmail.com**
+### You can contact me on **Phone No.: +91-8866-597132** and **Email ID: josetony78@gmail.com**
 
 ### Thank you..!!
