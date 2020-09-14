@@ -1,6 +1,6 @@
 #### Hi there I am Tony Jose:
 
-###### I have been working as a Business Analyst since 2016 and understand the key concepts and principles of this job and what it takes to successfully execute all assigned duties.
+##### I have been working as a Business Analyst since 2016 and understand the key concepts and principles of this job and what it takes to successfully execute all assigned duties.
 
 ##### After working in the data analysis industry for over 3 years, I have developed extensive knowledge and expertise in the field and gained valuable experience in various aspects of this job. Besides collecting and examining large datasets, I am fully skilled in creating and implementing professional data predictive models, producing  detailed reports, and performing multiple data management tasks. Moreover, my previous roles have helped me to develop and significantly improve my attention to detail and  accuracy and gave me a chance to see and feel what it's like to be a part of a deadline-driven and fast paced business environment.
 
